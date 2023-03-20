@@ -1,1 +1,0 @@
-# simpltus.github.io
